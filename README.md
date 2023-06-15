@@ -1,0 +1,1 @@
+# YwaoFugimoto.github.io
